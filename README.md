@@ -4,4 +4,4 @@ OH MY GOD I LOVE YOU
   
 THANK YOU SM !!!!!!
 
-gift from my friend @YipeMuitasAura!!!
+gift from my friend @YipeMingosMimos !!
